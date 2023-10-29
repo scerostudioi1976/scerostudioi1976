@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning about NFT
 - 🌱 I’m currently learning about cryptocurrency...
 - 💞️ I’m looking to collaborate on something that will help 
-- 📫 How to reach me ...
+- 📫 How to reach me .(scerostudio.inc@gmail.com)
 
 <!---
 scerostudioi1976/scerostudioi1976 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
